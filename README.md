@@ -1,2 +1,0 @@
-# thanhdanh
-dự án
